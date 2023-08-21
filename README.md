@@ -1,0 +1,1 @@
+# friendte.ch
